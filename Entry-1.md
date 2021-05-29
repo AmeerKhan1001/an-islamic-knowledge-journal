@@ -4,7 +4,7 @@
 
 ![](https://quranicquotes.com/wp-content/uploads/2021/04/417-quran-english-16-96-nahl1-744x744.png)
 
-A Hadith - Teachings of the Prophet Muhammad PBUH
+## A Hadith - Teachings of the Prophet Muhammad PBUH
 
 ![](https://pbs.twimg.com/media/CMOR9V3UcAEp9RT?format=jpg&name=large)
 
