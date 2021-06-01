@@ -16,7 +16,7 @@
 [What Islam Offers to Modern Self-Help: An Islamic Paradigm of Psychology](https://productivemuslim.com/what-islam-offers-to-modern-self-help/
 )
 
-![](https://productivemuslim.com/wp-content/uploads/2019/12/01-islamic-model-soul-poster-mockup-1.jpg)
+<iframe src="https://productivemuslim.com/wp-content/uploads/2019/12/01-islamic-model-soul.pdf" height="100%" width="100%" scrolling="auto"></iframe>
 
 ---
 ## Motivational Videos
