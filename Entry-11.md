@@ -1,0 +1,5 @@
+# Entry - 10
+
+## Video
+
+[100% PROOF QURAN IS FROM GOD - PROVEN ONCE & FOR ALL WITH UNDENIABLE FACTS! (2021)](https://youtu.be/sxAaiAUiUbM)
